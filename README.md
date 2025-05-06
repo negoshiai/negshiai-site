@@ -1,1 +1,0 @@
-# negshiai-site
